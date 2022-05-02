@@ -1,2 +1,1 @@
 # manraj-joban-poem
-scknc
